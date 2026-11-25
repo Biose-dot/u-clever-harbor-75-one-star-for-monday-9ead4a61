@@ -4,6 +4,8 @@
 
 # One Star for Monday
 
-One line: a one-star review of Monday, written as though Monday were a restaurant. The waiter serves Monday cold, overcooks the weekend, and still charges for the whole week — table, dish, and bill all gone wrong, and the joke only works on Monday.
+One line: a one-star review of Monday, written as though Monday were a restaurant. Monday arrives cold, the weekend comes back overcooked, and the bill still covers the whole week — table, dish, and tab all gone wrong, and the joke only lands on Monday.
 
-> One star. Waiter served Monday cold, overcooked my weekend, and still charged me for the whole week.
+Bounty: https://make.fun/bounty/u-clever-harbor-75-one-star-for-monday-9ead4a61
+
+> One star. Monday arrived cold, the weekend came back overcooked, and they still billed me for the whole week.
